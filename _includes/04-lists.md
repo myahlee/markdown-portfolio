@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+*Raindrops on Roses
+*Wiskers on Kittens
+*Bright copper kettels
+*Warm wollen mittens
